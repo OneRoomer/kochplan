@@ -1,0 +1,152 @@
+# 🍽️ Proteinreicher Wochenplan für 2 Personen
+
+Erstellt am: 17.5.2026
+
+## Wochenplan
+
+### Montag
+
+**Gegrillte Hähnchenbrust mit Quinoa, geröstetem Brokkoli und Kichererbsen**
+
+🥩 Protein: 56 g Protein pro Portion pro Portion
+
+#### Zutaten:
+
+- 360 g Hähnchenbrustfilets
+- 150 g Quinoa (trocken)
+- 400 g Brokkoli
+- 1 Dose (400 g) Kichererbsen (Dose, 400 g)
+- 1 Stück Zitrone
+- 2 Zehen Knoblauch
+- 2 EL Olivenöl
+- 1 TL Paprikapulver (edelsüß)
+- nach Geschmack Salz
+- nach Geschmack Pfeffer
+- 20 g Frische Petersilie (optional)
+
+#### Zubereitung:
+
+1) Quinoa nach Packungsangabe in leicht gesalzenem Wasser kochen (ca. 12–15 Min.).
+2) Backofen auf 200 °C vorheizen. Brokkoli in Röschen teilen, mit 1 EL Olivenöl, Salz und Pfeffer und etwas Paprikapulver vermengen, auf ein Backblech geben und ca. 15–18 Minuten rösten, bis er leicht gebräunt ist.
+3) Hähnchenbrustfilets mit Salz, Pfeffer und Paprikapulver würzen. In einer Pfanne 1 EL Olivenöl erhitzen und die Hähnchenbrüste bei mittlerer Hitze je nach Dicke 5–7 Minuten pro Seite braten, bis sie durchgegart sind (Kerntemperatur ~75 °C). Vor dem Schneiden 3 Minuten ruhen lassen.
+4) Kichererbsen abgießen, kurz in der Pfanne mit etwas Olivenöl und einer gepressten Knoblauchzehe anbraten, mit Zitronensaft, Salz und Pfeffer abschmecken.
+5) Quinoa auf Tellern verteilen, Brokkoli und Kichererbsen dazugeben, Hähnchen in Scheiben schneiden und darauflegen. Mit frisch gehackter Petersilie und Zitronenspalten servieren.
+
+---
+
+### Dienstag (Doppelte Portion)
+
+**Putenhack-Chili mit braunem Reis (doppelte Portion, reicht für 2 Tage)**
+
+🥩 Protein: 33 g Protein pro Portion pro Portion
+
+#### Zutaten:
+
+- 600 g Putenhackfleisch
+- 300 g Brauner Reis (trocken)
+- 2 Dosen (insgesamt 800 g) Kidneybohnen (Dose, 400 g)
+- 800 g Passata / gehackte Tomaten
+- 2 Stück Zwiebel
+- 3 Zehen Knoblauch
+- 2 EL Olivenöl
+- 1 EL Paprikapulver (edelsüß)
+- 1 TL Chilipulver (nach Schärfewunsch)
+- 1 TL Kreuzkümmel (gemahlen)
+- nach Geschmack Salz
+- nach Geschmack Pfeffer
+- 10 g Frischer Koriander oder Petersilie (optional)
+
+#### Zubereitung:
+
+1) Reis nach Packungsangabe kochen.
+2) Zwiebeln und Knoblauch fein hacken. In einem großen Topf 2 EL Olivenöl erhitzen, Zwiebeln 3–4 Minuten glasig anschwitzen, Knoblauch kurz mitbraten.
+3) Putenhack hinzufügen und bei kräftiger Hitze anbraten, bis es krümelig und durchgegart ist.
+4) Paprikapulver, Chilipulver und Kreuzkümmel hinzufügen, kurz mitrösten. Passata und abgetropfte Kidneybohnen einrühren, aufkochen und dann 10–15 Minuten bei mittlerer Hitze köcheln lassen, bis die Sauce eingedickt ist. Mit Salz und Pfeffer abschmecken.
+5) Chili zusammen mit dem braunen Reis servieren. Portionen für zwei Tage in luftdichte Behälter füllen und im Kühlschrank aufbewahren (innerhalb von 48 Stunden aufbrauchen).
+
+---
+
+### Donnerstag (Doppelte Portion)
+
+**Schweinefilet mit weißen Bohnen und Ofengemüse (doppelte Portion, reicht für 2 Tage)**
+
+🥩 Protein: 35 g Protein pro Portion pro Portion
+
+#### Zutaten:
+
+- 600 g Schweinefilet
+- 2 Dosen (insgesamt 800 g) Weiße Bohnen (Dose, 400 g)
+- 600 g Süßkartoffeln
+- 2 Stück Paprika (rot/gelb)
+- 1 Stück Zwiebel
+- 2 Zehen Knoblauch
+- 2–3 EL Olivenöl
+- 1 TL bzw. 1 Zweig Rosmarin oder Thymian (getrocknet oder frisch)
+- nach Geschmack Salz
+- nach Geschmack Pfeffer
+
+#### Zubereitung:
+
+1) Backofen auf 200 °C vorheizen. Süßkartoffeln schälen (optional) und in mundgerechte Würfel schneiden, Paprika entkernen und in Streifen schneiden. Zwiebel grob schneiden.
+2) Gemüse auf ein Backblech geben, mit 1–2 EL Olivenöl, Salz, Pfeffer und Rosmarin vermengen und 25–30 Minuten rösten, bis die Süßkartoffelstücke weich und leicht gebräunt sind.
+3) Schweinefilet in Medaillons schneiden, mit Salz und Pfeffer würzen. In einer heißen Pfanne 1 EL Olivenöl erhitzen und das Filet rundherum anbraten (je nach Dicke ca. 3–4 Minuten pro Seite) bis zur gewünschten Garstufe. Kurz ruhen lassen.
+4) Weiße Bohnen abgießen, in einem Topf erhitzen und mit einer angedrückten Knoblauchzehe, Salz und Pfeffer würzen. Nach Bedarf etwas Olivenöl einrühren.
+5) Schweinefilet mit Ofengemüse und weißen Bohnen servieren. Restliche Portionen abkühlen lassen und im Kühlschrank für den Folgetag aufbewahren.
+
+---
+
+### Samstag (Doppelte Portion)
+
+**Rindergeschnetzeltes mit schwarzen Bohnen und Vollkornnudeln (doppelte Portion, reicht für 2 Tage)**
+
+🥩 Protein: 39 g Protein pro Portion pro Portion
+
+#### Zutaten:
+
+- 600 g Rindergeschnetzeltes
+- 2 Dosen (insgesamt 800 g) Schwarze Bohnen (Dose, 400 g)
+- 300 g Vollkornnudeln (trocken)
+- 1 Stück Zwiebel
+- 2 Zehen Knoblauch
+- 2 EL Olivenöl oder Rapsöl
+- 2 EL Sojasauce
+- 1 TL Paprikapulver (edelsüß)
+- nach Geschmack Salz
+- nach Geschmack Pfeffer
+- 10 g Frische Petersilie (optional)
+
+#### Zubereitung:
+
+1) Vollkornnudeln nach Packungsangabe in Salzwasser kochen.
+2) Zwiebel und Knoblauch fein hacken. In einer großen Pfanne 2 EL Öl erhitzen, Zwiebeln glasig anbraten, Knoblauch kurz mitrösten.
+3) Rindergeschnetzeltes bei hoher Hitze scharf anbraten, bis es Farbe hat und durch ist (je nach Dicke 3–5 Minuten). Mit Paprikapulver, Salz und Pfeffer würzen.
+4) Abgetropfte schwarze Bohnen hinzufügen und kurz mit erwärmen. Mit Sojasauce abschmecken.
+5) Nudeln mit dem Fleisch-Bohnen-Mix vermengen oder getrennt servieren. Portionen für den nächsten Tag abkühlen lassen und im Kühlschrank aufbewahren.
+
+---
+
+## 🛒 Einkaufsliste
+
+- 360 g Hähnchenbrustfilets
+- 600 g Putenhackfleisch
+- 600 g Schweinefilet
+- 600 g Rindergeschnetzeltes
+- 150 g Quinoa (trocken)
+- 300 g Brauner Reis (trocken)
+- 300 g Vollkornnudeln (trocken)
+- 400 g Brokkoli
+- 600 g Süßkartoffeln
+- 2 Stück Paprika (frisch)
+- 4 Stück Zwiebeln
+- 9 Zehen Knoblauch
+- 1 Dose (400 g) Kichererbsen (Dose, 400 g)
+- 2 Dosen (insgesamt 800 g) Kidneybohnen (Dose, 400 g)
+- 2 Dosen (insgesamt 800 g) Weiße Bohnen (Dose, 400 g)
+- 2 Dosen (insgesamt 800 g) Schwarze Bohnen (Dose, 400 g)
+- 800 g Passata / gehackte Tomaten
+- 1 Stück Zitrone
+- 30 g Frische Petersilie (optional)
+- ca. 11 g Paprikapulver (edelsüß)
+- ca. 2 g Chilipulver
+- ca. 2 g Kreuzkümmel (gemahlen)
+- kleine Menge, ca. 1 TL Rosmarin oder Thymian (getrocknet/frisch)
